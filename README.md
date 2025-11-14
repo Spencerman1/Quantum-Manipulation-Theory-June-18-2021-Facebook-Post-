@@ -1,2 +1,4 @@
-# Quantum-Manipulation-Theory-June-18-2021-Facebook-Post-
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+Quantum-Manipulation-Theory-June-18-2021-Facebook-Post-
 This post, authored by Spencer Southern on June 18, 2021, introduces a self-authored theory on quantum manipulation through observer influence, mental energy, and collective intention. It anticipates core components of the IP stack later formalized under
